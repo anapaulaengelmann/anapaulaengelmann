@@ -16,5 +16,6 @@ sobre a "poesia"  eu tenho um perfil no instagram onde eu posto fotos conceito m
 _firehe.art    espero que gostem do conteudo infelizmente nao sou tao boa em informatica mesmo mas eu tento.
 
 estou aprendendo a produxir no p5js e no scratch.
-
+"nao tenho certeza de nada mais a visao das estrelas me faz sonhar "
+Vicent vangogue
 
